@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @prodiced
+- 👀 I’m interested in; making new projects.
+- 🌱 I’m currently learning; idk
+- 📫 How to reach me; tetsu0001
